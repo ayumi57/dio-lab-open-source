@@ -1,6 +1,6 @@
 ## Amanda Mayumi
-Ola a todos, sou Amanda Mayumi
-Gosto muito de ler livros de suspence e romence.
+Ola a todos, sou Amanda Mayumi, 
+Gosto muito de ler livros de suspence e romence. 
 Sou um pouco boa em matematica mais em geografia nem muito. 
 Gosto muito de fazer amizades, conversar muito e comer tambem :)
 
